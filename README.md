@@ -1,0 +1,1 @@
+# Exercicioaj2lab01_02
